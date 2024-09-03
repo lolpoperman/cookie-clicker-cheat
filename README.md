@@ -1,0 +1,2 @@
+# cookie-clicker-cheat
+real
